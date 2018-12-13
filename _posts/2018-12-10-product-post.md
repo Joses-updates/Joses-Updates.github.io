@@ -9,8 +9,8 @@ title: Reshoevn8r
 
 ## Why I recommend Reshoevn8r
 >Personally using this product it has helped me get stains and scuff out of my shoes and they also
->sell water and stain repellent to prevent your shoes from staining or getting dirty from any liquids. They also offer sole >shields
->to keep the soles of you shoes icy or stay clean. The reshoevn8r laundry system is also a good product it helps turn those dirty >shoes back clean.
+>sell water and stain repellent to prevent your shoes from staining or getting dirty from any liquids. They also offer sole shields
+>to keep the soles of you shoes icy or stay clean. The reshoevn8r laundry system is also a good product it helps turn those dirty shoes back clean.
 
 ## Pros and Cons of Reshoevn8r
 >[Here](https://m.youtube.com/watch?v=hWcZD6K2D1c) is a video to show how good reshoevn8r works.
